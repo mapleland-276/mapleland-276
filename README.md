@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @oMapleRay
+- 👋 Hi, I’m @mapleland-276
 - 👀 Simple maths learner, no interests in papers\
 - 📫 Please do not try to reach me.
 
